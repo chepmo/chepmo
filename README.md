@@ -10,3 +10,4 @@ J'ai eu l'occasion de créer deux projets d'études que vous pourrez retrouver s
 Je suis particulièrement fière de notre projet "Behind Meat", créé en une dizaine de jours avec mes deux collègues Alexia et Mélanie. C'était un projet qui nous tenait beaucoup à coeur et nous sommes ravies d'y être arrivées ! <br>
 🐄 www.behindmeat.site 🐄 <br>
 Vous pouvez me contacter via LinkedIn avec plaisir ! 😄
+Mon portfolio : https://poised-banana-26c.notion.site/Morgane-Le-Deu-D-veloppeuse-web-junior-d26218837b6c441ca653fbbabbe81365
